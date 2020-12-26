@@ -11,11 +11,4 @@ fa
 fad
 da
 
-dfa
-afd
-af
-fad
-dfa
-
-f
-adfa
+a ls als laslsalsasa
